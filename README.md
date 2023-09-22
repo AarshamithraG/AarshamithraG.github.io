@@ -34,10 +34,9 @@ I believe in the power of knowledge and its ability to drive change. Here's how 
 
 I enjoy giving back to the community and providing support where needed. Some of the ways I contribute include:
 
-- 💬 Actively listening and helping people on 7 Cups
+- 💬 Actively listening and helping people on [7 Cups](https://www.7cups.com)
 - 🌐 Sharing knowledge and insights on [platforms like Quora] - https://www.quora.com/profile/Aarshananda-G-Krishna
 
-Feel free to explore my repositories to learn more about my coding projects and contributions.
 
 Let's connect and collaborate to make the world a better place! ✨
 
