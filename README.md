@@ -1,5 +1,5 @@
 # AarshamithraG.github.io
-# Hi there, I'm Aarshamithra G Devi 👋
+# Namaste, I'm Aarshamithra G Devi 🙏
 
 I'm a passionate researcher, innovator, and social enthusiast dedicated to making a positive impact on the world. I have had the privilege of participating in several prestigious programs, including:
 
