@@ -1,7 +1,7 @@
 # AarshamithraG.github.io
 # Namaste, I'm Aarshamithra G Devi 🙏
 
-I'm a passionate researcher, innovator, and social enthusiast dedicated to making a positive impact on the world. I have had the privilege of participating in several prestigious programs, including:
+I'm a 12th-grade student at Mithra Central School, Kerala, India, and a passionate researcher, innovator, and social enthusiast dedicated to making a positive impact on the world. I have had the privilege of participating in several prestigious programs, including:
 
 - 🌟 Junior Academy of New York Academy of Sciences & Global STEM Alliance
 - 🚀 Young Innovators Program of Kerala State Government
@@ -35,8 +35,7 @@ I believe in the power of knowledge and its ability to drive change. Here's how 
 I enjoy giving back to the community and providing support where needed. Some of the ways I contribute include:
 
 - 💬 Actively listening and helping people on [7 Cups](https://www.7cups.com)
-- 🌐 Sharing knowledge and insights on [platforms like Quora] - https://www.quora.com/profile/Aarshananda-G-Krishna
-
+- 🌐 Sharing knowledge and insights on [platforms like Quora](https://www.quora.com/profile/Aarshananda-G-Krishna)
 
 Let's connect and collaborate to make the world a better place! ✨
 
